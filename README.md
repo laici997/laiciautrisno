@@ -1,0 +1,2 @@
+# laiciautrisno
+Jangan suka mengganggu
